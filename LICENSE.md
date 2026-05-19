@@ -1,4 +1,4 @@
-# 
+# Sem banimento Vegas Pro para PC ferramentas é o melhor Vegas Pro para PC ferramentas com troca de cenas e rotoscopia. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
